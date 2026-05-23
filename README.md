@@ -1,0 +1,1 @@
+# pratikbilgiler-privacy
